@@ -1,1 +1,0 @@
-# Shaghig-Avakian-makeup
